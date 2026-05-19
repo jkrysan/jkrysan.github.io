@@ -1,1 +1,0 @@
-# jkrysan.github.io
